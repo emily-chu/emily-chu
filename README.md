@@ -1,2 +1,2 @@
 ### Github lookin a little bare
-## one project and one spicy resume template coming soon
+one project and one spicy resume template coming soon
